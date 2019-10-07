@@ -1,0 +1,2 @@
+# fuck
+Cepat kerjakan njrir
